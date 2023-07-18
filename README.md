@@ -1,0 +1,1 @@
+# japanMock1.0
